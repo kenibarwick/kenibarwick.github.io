@@ -1,5 +1,5 @@
- [Keni Barwick on LinkedIn](https://www.linkedin.com/in/kenibarwick/)
+[Keni Barwick on LinkedIn](https://www.linkedin.com/in/kenibarwick/)
 
- [Red Tomatoes](https://redtomatoes.club/)
-
- [CV](Keni_Barwick_07795666588.htm)
+[CV](Keni_Barwick_07795666588.docx)
+ 
+🍅[Red Tomatoes](https://redtomatoes.club/)🍅
